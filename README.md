@@ -1,0 +1,6 @@
+clase 17 de octubre 
+Mendoza Andrea 
+Pacheco Juliana
+Urquijo Karla 
+https://makecode.microbit.org/_5zJeuzhhaJMU
+https://makecode.microbit.org/_7oR8VsXWmH2v
